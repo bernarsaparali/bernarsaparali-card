@@ -1,0 +1,1 @@
+# bernarsaparali-card
